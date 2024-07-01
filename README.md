@@ -1,0 +1,1 @@
+I have included this file in  Github. So that Clients can check my coding exptertise. Html coding for email templates is really difficult and it has certain limitations. My coding structure is 100% perfect. People are welcome to assess my coding skill anytime. Thanks
